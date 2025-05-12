@@ -1,4 +1,4 @@
-# Dux-Soup Coupon Code & Discount (50% Off
+# Dux-Soup Coupon Code & Discount (30% Off)
 
 Are you looking for latest [**Dux-Soup coupon codes**](https://www.dux-soup.com/pricing?fpr=shadow) to save 50% on your plans?
 
@@ -58,6 +58,15 @@ Ready to dive into the best deals? Here’s a rundown of the current Dux-Soup co
 * Applicable Products/Services: This coupon is valid for the Turbo plan.
 * Expiry Date: Ends on June 30, 2025—make sure to use it before the deadline!
 * How to Use: Apply the code DUXX20 during checkout to receive the discount on your first 3 months.
+
+## How To Redeem Dux-Soup Coupon?
+
+Step 1: Visit the official Dux-Soup website.
+Step 2: Choose your plan and click on subscribe button
+Step 3: Discount is applied automatically
+Step 4: Pay the remaining amount and complete order
+
+You have claimed the 30% discount on Dux-Soup.
 
 ### More coupons
 
