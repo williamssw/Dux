@@ -62,8 +62,11 @@ Ready to dive into the best deals? Here’s a rundown of the current Dux-Soup co
 ## How To Redeem Dux-Soup Coupon?
 
 Step 1: Visit the official Dux-Soup website.
+
 Step 2: Choose your plan and click on subscribe button
+
 Step 3: Discount is applied automatically
+
 Step 4: Pay the remaining amount and complete order
 
 You have claimed the 30% discount on Dux-Soup.
